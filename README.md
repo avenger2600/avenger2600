@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @avenger2600
+- 👀 I’m interested in mainly wanting to get a good concept on coding, and have a good start.
+- 💞️ I’m looking to collaborate on anything, really
